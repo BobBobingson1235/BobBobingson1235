@@ -1,1 +1,1 @@
-- SHTE IZDIVEQQQQ
+- ЩЕ ИЗДИВЕЯЯ
